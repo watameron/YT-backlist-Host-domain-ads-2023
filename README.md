@@ -7,5 +7,5 @@ Do you use not working please contact
 
 Email Contact「」info.hololive@protonmail.com「」
 
-language support contact「」THAI「」TRANSLATE「」ENG「」version
+language support contact「」THAI「」TRANSLATE「」ENG「」
 
