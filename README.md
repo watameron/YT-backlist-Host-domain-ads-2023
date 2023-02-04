@@ -1,5 +1,5 @@
 
-Youtube url block ads BETA TEST ONLY
+Youtube domain blocklist ads BETATEST ONLY
 
 block video ads pop-up watching only [homepage youtube block not working]
 
