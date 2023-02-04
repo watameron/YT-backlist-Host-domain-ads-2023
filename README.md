@@ -1,7 +1,7 @@
 
 Youtube url block ads BETA TEST ONLY
 
-block video ads pop-up watching only [homepage youtube block not working] very very sorry
+block video ads pop-up watching only [homepage youtube block not working] 
 
 Do you use not working please contact
 
